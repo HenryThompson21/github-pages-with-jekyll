@@ -7,7 +7,7 @@ things to study for tomorrow:
 * Math
 * English
 
-List to buy Christmas gifts for:
+List of teachers to buy Christmas gifts for:
 1. Mr. Gretz
 2. Mommy
 3. Ms. Golden
